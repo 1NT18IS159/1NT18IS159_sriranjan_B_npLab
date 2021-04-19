@@ -1,1 +1,1 @@
-# 1NT18IS159_Sriranjan_B_NPLAB
+# 1NT18IS159_sriranjan_B_npLab
